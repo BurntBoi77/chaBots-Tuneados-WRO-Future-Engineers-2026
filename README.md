@@ -77,7 +77,7 @@ I am a self-taught robotics enthusiast with experience in embedded systems, soft
 I am a Mechanical Engineering student that has been participating in robotics competitions since 2019. I won at the RoboCup Mexican Open and represented Mexico at the international RoboCup event in Brazil.
 
 
-> "No."
+> "I miss her."
 
 ---
 
